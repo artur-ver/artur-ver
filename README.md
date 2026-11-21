@@ -57,7 +57,7 @@ Case studies of most of them: **[adscaled.media/en/projects](https://www.adscale
 
 ### 📫 Let's talk
 
-Work with the AdScaled team: **[contact@adscaled.media](mailto:contact@adscaled.media)** · [adscaled.media/en/contact](https://www.adscaled.media/en/contact)
+Write to me: **[arturverbovsuk@gmail.com](mailto:arturverbovsuk@gmail.com)** · or work with the AdScaled team: [adscaled.media/en/contact](https://www.adscaled.media/en/contact)
 
 ### 💼 Experience
 
